@@ -3,4 +3,4 @@
 
 ## 永久地址
 
-[主站](https://avtime.tv)
+[點擊前往](https://avtime.tv)
